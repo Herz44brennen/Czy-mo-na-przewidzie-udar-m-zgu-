@@ -1,0 +1,1 @@
+# Czy-mo-na-przewidzie-udar-m-zgu-
